@@ -1,1 +1,1 @@
-# Tathastu-Scholar-Program--by-TwoWaits
+# Tathastu-Scholar-Program--by TwoWaits
